@@ -14,7 +14,7 @@ https://drive.google.com/file/d/0BxFUS1F4EiWJdEJZZzNLeDRtX0E/view?usp=sharing
 
 ### Introduction to Operating Systems
 
-https://docs.google.com/presentation/d/1iql3_9s3P1vCKUH3o3Q1uz6-SJl2cUvJFHwEckFzHvM/edit?usp=sharing
+https://drive.google.com/file/d/0BxFUS1F4EiWJMFJ0Y1l3X1R5TzVXNVM1YU1VYW9oT00zSDJj/view?usp=sharing
 
 *Any and all new information will be updated here as soon as
 possible.*
